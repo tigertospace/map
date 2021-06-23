@@ -17,3 +17,12 @@
 
 ### Explanation of Concepts and Operators
 * Start from the beginning (Tautology Origin Limit) and explain each Concept and how they connect via Operators. 
+
+
+<br/><br/>
+### Miscellaneous
+Footnote example code. <sup>1</sup>
+
+<sup>1</sup> Nelson Rayl, 2021
+
+
