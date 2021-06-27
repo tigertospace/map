@@ -2,3 +2,4 @@
 
 ### Tautology Origin Limit
 We begin with ...
+In order to reach a truth of networks one must first understand the assumptions that are imperative for the functioning of being. IS represents the greatest assumption to interact with as it allows for a glimpse into an alternative movement of things that is not contingent on the frameworks of society that we have opted into. While life feels constant and smooth the process of achieving certianity reveals in itself the inability to cooborate the smoothness with understanding or meaning. Thusly, we enter into a tautology or an origin point from which our worlds grow and our lives find themselves bound to. The complexity within which we interact on a daily basis inhibits access to something outside our knowing and because of its intoxicating fumes, we progress technologcially and still can we not answer the question of why. Perhaps 
