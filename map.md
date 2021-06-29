@@ -15,12 +15,19 @@ When we use the word architecture, we are referring to the structure we are usin
 Why the use of Concepts and Operators as the fundamental structure of the map? There is one origin concept, the universe itself. **maybe make a note here about what the universe is for us. It is everything. Just to guard against somebody saying, "While what about the multiverse".** All other phenomena are embedded in the universe. The minimum architecture necessary to describe this one assumption is exactly the architecture we have chosen. To begin with the universe necessitates the Concept of the universe, and to claim that all other Concepts are embedded in the universe requires a logical statement of conditionality, an Operator.
 
 
+SB addition
+
+The lost space in which we operate and communicate provides difference where people come into togetherness, however the missed worlds of meaning do not allow for the fullness of the world to come into being. The world deserves a complete vocabulary if it is to be talked about at all. While we have spawned in this world, we are not the arbitors of its being or its ways and thus the learning and the progress in some ways, is us catching up on millions of years of pre human existence. 
+
 
 
 
 
 ### Tautology Origin Limit
 We begin with ...
+
+
+
 
 
 
